@@ -1,4 +1,6 @@
+Will Miao
 
+![Image of Hands Up, Don't Shoot](https://drive.google.com/file/d/0Bwm6mh1NBWK3cTZjNTk0QjFIb2M/view?usp=sharing)
 [Whitney Bandel’s “Hands Up, Don't Shoot” demonstration (video)](https://vimeo.com/138336445)
 [Artist's Statement](https://webandel.files.wordpress.com/2014/03/artist-statement-long.pdf)
 
