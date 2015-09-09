@@ -1,5 +1,3 @@
-Will Miao
-
 ![Image of Hands Up, Don't Shoot](http://i.imgur.com/cr1TdzZ.jpg)
 
 [Whitney Bandel’s “Hands Up, Don't Shoot” demonstration (video)](https://vimeo.com/138336445)
